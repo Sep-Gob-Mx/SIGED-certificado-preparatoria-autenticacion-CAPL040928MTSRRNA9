@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CAPL040928MTSRRNA9
+CAPL040928MTSRRNA9
